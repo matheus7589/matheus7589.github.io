@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Hail Satanás Lord of the darkness, of shadow (fuck gzuz)
 
 ### More Information
 
